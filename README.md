@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tgheike
 - 👀 I’m interested in play computer.
 - 🌱 I’m currently learning programming.
-- 💞️ I’m looking to collaborate on 11.12.
+- 💞️ I’m looking to collaborate on qq or weixin.
 - 📫 How to reach me .
 
 <!---
